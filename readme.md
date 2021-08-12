@@ -8,7 +8,8 @@ Anteriormente estudié Ingeniería en Computación en la UNTREF pero la dejé, d
 
  Me gustar hacer cursos, algunos son relacionados con la carrera - actualmente estoy haciendo uno de **Desarrollo Web**- pero, también hice otros relacionados con cosmetología.
  
- Nunca tuve una mascota.
+ Nunca tuve una mascota y, no me gusta sacarme fotos. Prefiero vivir el momento sin tener que fotografiarlo.![foto](https://user-images.githubusercontent.com/88852204/129252880-6125ae07-b0a5-4e98-94c4-2e528bb7af13.jpg)
+
  
  Soy una persona que no sabe lo que es tener tiempo libre, ya que siempre me encargo de anotarme u organizar algo para estar ocupada.
  
